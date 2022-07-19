@@ -1,11 +1,17 @@
 #  How Like a Network: The Dance-tech Project
 
 [Transmission in Motion chapter 8 Barrios Solano.pdf](https://github.com/marlonbarrios/how_like_a_network_essay/files/9145279/Transmission.in.Motion.chapter.8.Barrios.Solano.pdf)
+
 Transmission in Motion
 
 The Technologizing of Dance
 
 Edited By Maaike Bleeker
+
+https://www.routledge.com/Transmission-in-Motion-The-Technologizing-of-Dance/Bleeker/p/book/9781138189447
+
+https://www.routledge.com/Transmission-in-Motion-The-Technologizing-of-Dance/Bleeker/p/book/9781138189447
+
 
 Essay by Marlon barrios Solano
 
